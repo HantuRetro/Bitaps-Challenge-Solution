@@ -3,3 +3,9 @@
 - Setup Guide youtube :
 - Money Back Guarantee until the script runs
 - Money Back Guarantee if script doesn't work
+
+
+
+- BTC `3ArabZutRGFscn8qi67vUBi6bbUohESdHQ`
+- Qubic `
+- WARTHOG (WART) '
