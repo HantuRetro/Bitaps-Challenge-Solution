@@ -1,5 +1,7 @@
 "Link akses password bisa via shopee (INDONESIA), Paypal/Crypto (WORLD WIDE)" contact us email : `hanturetro@gmail.com`
 
+-link produk via shopee : 
+
 - Setup Guide youtube :
 - Guarantee until the script runs
 
