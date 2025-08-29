@@ -4,7 +4,7 @@
 - aplikasi wajib 7zip link https://www.7-zip.org/
 
 
-- Setup Guide youtube :
+- Setup Guide youtube : https://www.youtube.com/watch?v=JbzyE61WVhc
 - Guarantee until the script runs
 
 
