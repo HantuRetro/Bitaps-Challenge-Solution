@@ -1,4 +1,4 @@
-"Link akses password bisa via shopee (INDONESIA), Paypal/Crypto (WORLD WIDE)" contact us email : `hanturetro@gmail.com`
+"Link akses password bisa via shopee (INDONESIA), Paypal/Crypto (WORLD WIDE)" contact us email : `quis.me@icloud.com`
 
 - link produk via shopee : https://shopee.co.id/product/257303000/24596613629/
 - aplikasi wajib 7zip link https://www.7-zip.org/
